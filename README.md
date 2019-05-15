@@ -1,2 +1,2 @@
-Erreur du dossier de TP précedement, maintenant il s'agit de la bonne version. 
-Désolé de la gêne occasionnée.
+Erreur du dossier de TP précédemment, maintenant il s'agit de la bonne version. 
+Je vous prie de bien vouloir m'excuser de la gêne occasionnée.
